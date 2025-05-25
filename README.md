@@ -36,7 +36,7 @@ Preview YouTube video EHR WIREFRAME WALKTHROUGH
 
 ### [Momentum and Mindset](#)
 My personal fitness blog that blends wellness, gym life, and tech. Sharing stories of consistency, setbacks, and everything in between.
-
+https://joywrites4.wordpress.com/2025/01/14/emotional-intelligence-a-key-strength-of-women/
 ---
 
 ## 🌱 Currently Learning

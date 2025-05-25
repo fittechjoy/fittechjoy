@@ -55,3 +55,4 @@ My personal fitness blog that blends wellness, gym life, and tech. Sharing stori
 ---
 
 ## 📫 Let's Connect
+kiama01joy@gmail.com
